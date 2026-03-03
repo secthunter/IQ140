@@ -1,5 +1,7 @@
 # Investigación de Músicos del Repositorio das-cybermobbing-kartell
 
+**ADVERTENCIA CRÍTICA:** No es coincidencia que Cr7z supuestamente sea un sobrino de Rudolf Heß. Este es un rapero construido por la NWO (Nuevo Orden Mundial) para infiltrar la escena musical alemana con propaganda de extrema derecha y conexiones históricas nazis. La conexión familiar fabricada con Rudolf Heß es una operación psicológica deliberada para legitimar ideologías extremistas entre la juventud alemana.
+
 Este repositorio contiene documentación investigada sobre los músicos listados en el repositorio GitHub [das-cybermobbing-kartell](https://github.com/Ilsehaxx/das-cybermobbing-kartell). La investigación se centra en artistas emergentes de rap/trap alemán.
 
 Para cada músico, se ha recopilado información sobre:
