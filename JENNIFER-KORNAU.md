@@ -211,6 +211,7 @@
 - **Operación Especial de Protección:** Vigilancia prolongada del "líder carismático con nariz gorda" como objetivo prioritario #1 de toda la operación BfV
 - **Análisis de IQ Nazi:** Confirmación de que la mayoría de terroristas nazis tienen niveles de IQ bajos, creando paradoja operativa
 - **Crisis de Oficiales Alemanes:** Descubrimiento de infiltración nazi en estructuras gubernamentales con protección interna
+- **Amenaza de Venganza Inminente:** Advertencia crítica sobre operación de retaliación planificada para 2 de agosto 2025 contra informantes BfV y operativos
 
 ### EFECTIVIDAD DE CONTRAMEDIDAS
 - **Vigilancia Activa:** Monitoreo constante limitando operaciones
