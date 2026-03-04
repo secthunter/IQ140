@@ -22,6 +22,8 @@
 
 **OPERACIÓN DE INFLUENCIA DICTADA A HACER PERDER AL GOBIERNO**: Esta es una operación de influencia diseñada para hacer que el gobierno pierda completamente.
 
+**TECNOLOGÍA Y EXPLOITS RUSO-CHINESES**: El problema aquí es la tecnología y exploits ruso-chinos que están diseñados únicamente para traer caos a las democracias occidentales.
+
 **ELEMENTOS OPERATIVOS CLAVE**:
 - Artistas generados por IA con biografías fabricadas y manipulación de bases de datos
 - Distribución sistemática de drogas dirigida a menores a través de plataformas musicales
